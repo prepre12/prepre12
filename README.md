@@ -8,21 +8,21 @@
 **I help businesses, students and sales executives uncover insights with data.***
 
 
-**- 🔭 I’m currently working on **Advance Excel**
+- 🔭 I’m currently working on **Advance Excel**
 
-**- 🌱 I’m currently learning **Spreed sheet, SQL, Power BI  and Python**
+- 🌱 I’m currently learning **Spreed sheet, SQL, Power BI  and Python**
 
-**- 👯 I’m looking to collaborate on **Business projects**
+- 👯 I’m looking to collaborate on **Business projects**
 
-**- 🤝 I’m looking for help with **Writing Advance SQL Queries**
+- 🤝 I’m looking for help with **Writing Advance SQL Queries**
 
-**- 📝 I regularly write articles on **Business and Accounting**
+- 📝 I regularly write articles on **Business and Accounting**
 
-**- 💬 Ask me about **Accounting, Excel, Power BI, SQL**
+- 💬 Ask me about **Accounting, Excel, Power BI, SQL**
 
-**- 📫 How to reach me **preonyib@gmail.com**
+- 📫 How to reach me **preonyib@gmail.com**
 
-**- ⚡ Fun fact **I love movies and trying out new things**
+- ⚡ Fun fact **I love movies and trying out new things**
 
 **<h3 align="left">Connect with me:</h3>**
 
